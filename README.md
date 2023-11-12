@@ -1,3 +1,3 @@
-Mógge🙌🙌, 
-Ik ben Jacco van Kooten👱🏻‍♂️
+Mógge🙌🙌,  
+Ik ben Jacco van Kooten👱🏻‍♂️  
 Full-Time Web Developer🖥️
